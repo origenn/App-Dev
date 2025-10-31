@@ -1,8 +1,8 @@
 # 🎬 My Favorite Movie: *Bohemian Rhapsody*
 
 ## 🎤 Overview
-**Bohemian Rhapsody** is a **biographical musical drama film** about the life of **Freddie Mercury**, the legendary lead singer of the rock band **Queen**.  
-The movie celebrates their music, their rise to fame, and Freddie’s incredible journey of self-expression.
+**Bohemian Rhapsody** is a **biographical musical drama** picture that tells the story of **Freddie Mercury**, one of the most famous rock singers who belonged to the band **Queen**.  
+The film not only depicts the music but also the path to their superstardom and Freddy's marvelous self-exploration through art.
 
 ## 🌟 Main Characters
 - **Freddie Mercury** – the iconic and talented lead vocalist of Queen  
@@ -11,11 +11,11 @@ The movie celebrates their music, their rise to fame, and Freddie’s incredible
 - **John Deacon** – the quiet but brilliant bassist  
 
 ## 🎶 Favorite Song
-> “We are the champions, my friends!”
+> “Bohemian Rhapsody”
 
 ## ❤️ Why I Love This Movie
-I love how the film shows the power of music and how Queen broke boundaries in the music industry.  
-It’s inspiring to see Freddie Mercury’s confidence, creativity, and courage to be himself despite challenges.
+The movie is a great showcase of music's influence and Queen's breaking the boundaries in the music industry.  
+Freddie Mercury’s self-assertiveness, inventiveness and bravery to be himself regardless of obstacles are very motivational.
 
 ---
 
